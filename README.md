@@ -1,1 +1,2 @@
 # about-me
+I am a full time student and working full time at a game company called 2K. I have a puppy who also keeps me busy when school and work are not. 
